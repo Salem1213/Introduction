@@ -1,5 +1,5 @@
 # Introduction
-How I am?? 
+Who I am?? 
     My Name is Salem Ali. I just turned 20 years of age couple months ago. Currently in U of M bootcamp learning about Fintech.
     Background:
         I graduated high school in 2021. I am originally from Cairo, Egypt but my family is from Somalia. I moved to America 2012 at the age of 10. 
